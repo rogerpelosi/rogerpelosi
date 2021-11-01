@@ -1,4 +1,4 @@
-### 👋 Hi there, I'm Roger (they/them) 🦐
+### Hi there, I'm Roger (they/them) 👋 🦐
 
 🌱 Complex relationalities have helped to shape that which I choose to embody, and have allowed me to flourish thus far. I wish to cultivate my current relationships and open up to new ones, exposing myself and others to more love. This conscious intimacy and vulnerability brings me new perspective every day.
 

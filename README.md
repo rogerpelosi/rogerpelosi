@@ -6,4 +6,4 @@
 
 📖 Personal achievements I would like to accomplish include publishing a play, displaying my multimedia-multidimensional artwork, and working on digital programs that facilitate community building and outreach.
 
-🧠 Lastly, I intend to continuously observe mindful praxis in all that I do, to further develop my relationships with myself and the worlds around me, thanks for connecting!
+🧠 Lastly, I intend to continuously observe mindful praxes in all that I do, to further develop my relationships with myself and the worlds around me, thanks for connecting!
